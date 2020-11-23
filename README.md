@@ -25,5 +25,7 @@ Instagram : https://www.instagram.com/uniswap.finance/
 
 Reddit : https://www.reddit.com/user/uniswapfinance
 
+Medium : https://uniswapfinance.medium.com/
+
 Telegram Community : https://t.me/UniswapFinanceCommunity
 
